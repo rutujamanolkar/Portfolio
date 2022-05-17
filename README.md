@@ -1,1 +1,1 @@
-https://rutujamanolkar.github.io/Portfolio/
+https://rutujamanolkar.github.io/portfolio/
